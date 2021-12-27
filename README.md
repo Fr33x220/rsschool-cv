@@ -1,1 +1,1 @@
-# https://github.com/Fr33x220/rsschool-cv
+# https://GITHUB-USERNAME.github.io/rsschool-cv/Fr33x220
