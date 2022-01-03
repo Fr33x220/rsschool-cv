@@ -1,1 +1,1 @@
-# https://Fr33x220.github.io/rsschool-cv/cv.md
+# https://Fr33x220.github.io/rsschool-cv/
